@@ -21,3 +21,7 @@
 
 # [- nm](https://jikl.s-ul.eu/iDvu5kGz)
 ![](https://osu.ppy.sh/ss/19213835/8fb9)
+
+
+# [- Gate of steiner](https://www.mediafire.com/file/sngzz44x0ozcsce/GATE_OF_STEINER.osk/file)
+![](https://be.s-ul.eu/f73gpXSj)
